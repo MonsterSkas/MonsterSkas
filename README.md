@@ -1,0 +1,1 @@
+Hi, I am Skas, a programmer, game developer, graphics designer and a DJ/Producer. I love the feeling of competition when it comes to programming. I believe in this thing, "Don't be a programmer, be a problem solver". My dream is to become a successfull DJ/Producer in the Music industry, but at the same time I'm equally interested in programming and things related to technology .
